@@ -7,7 +7,7 @@ Credits
 -Music by 
 Chris Konhler (chriskohler.net),
 Monsieur Fred (frpatry@hotmail.ca),
-AJ ,
+AJ (Arturo.A.Austin@gmail.com),
 -SFX by
 Dustyroom (dustyroom.com),
 leohpaz (leohpazmusic.wordpress.com),
